@@ -1,1 +1,0 @@
-# Examen-progra-2da-parcial
